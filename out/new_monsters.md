@@ -54,4 +54,66 @@ we are safe.
 
 OH NO, WATCH OUT!  
 RUN!  
-OH, IT'S TOO LATE!
+NO! IT'S TOO LATE!
+
+# A Toilet Monster
+
+I've heard tale of a toilet monster,  
+Shaped something like a snake.
+
+It likes to slither in the water.  
+It coils up and it waits.
+
+It waits till you are right over,  
+Covering the hole.
+
+Its plan is to grab you,  
+and drag you down below.
+
+But don't worry, you are safe.  
+Its plan never gets a start.
+
+For its made of toilet paper,  
+and soon it falls apart!
+
+# Stick Creatures
+
+Dry and brittle.  
+Through mud they scuttle.
+
+Always watchful.  
+For kids to tackle.
+
+These stick creatures.
+Are blood thirsty.
+
+Propped together.  
+Easily scattered.
+
+Kick them swiftly.  
+They are no trouble.
+
+Just a pester.  
+Such clumsy monsters.
+
+# Ghosts in my House
+
+There is a ghost in my closet.  
+Behind a box of toys.  
+When playing, I close the door.  
+As he doesn't like the noise.
+
+There is a ghost in my chimney.  
+She wails on windy nights.  
+So I keep the fire burning.  
+To show her everything's alright.
+
+There is a ghost in my basement.  
+Who hides in corners and nooks.  
+She gets bored down there sometimes.  
+So I leave her lots of books.
+
+There is a ghost in the hallway.  
+Who never comes out in day.  
+At night, she taps my doorway.  
+To ask if I can come out and play.

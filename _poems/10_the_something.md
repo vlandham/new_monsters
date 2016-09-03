@@ -32,4 +32,4 @@ we are safe.
 
 OH NO, WATCH OUT!  
 RUN!  
-OH, IT'S TOO LATE!
+NO! IT'S TOO LATE!
