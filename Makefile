@@ -32,7 +32,7 @@ tex: combine
 pdf: combine
 	cd $(TEMP_DIR) && $(PDF_BUILDER) $(PDF_BUILDER_FLAGS) $(BOOK_FILE_NAME).md -o $(BOOK_FILE_NAME).pdf
 
-epub: add_titles
+epub:
 	# --epub-stylesheet=stylesheet.css --toc --toc-depth=1
 	cd $(TEMP_DIR) && $(EPUB_BUILDER) $(EPUB_BUILDER_FLAGS) img/epub_title.png  --epub-metadata=metadata.xml  $(BOOK_FILE_NAME).ebook.md -o $(BOOK_FILE_NAME).epub
 
