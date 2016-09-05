@@ -120,38 +120,126 @@ To ask if I can come out and play.
 
 # Tricky Witches
 
-Tricky Witches dressed as cats.
-
+Tricky Witches dressed as cats.  
 Lay in the sun on my door mat.
 
-They stretch and purr, hiss and scratch.
-
+They stretch and purr, hiss and scratch.  
 All the while, evil plans they hatch.
 
-They want to steal me. Put me in a stew
-
+They want to steal me. Put me in a stew  
 To make a special witches brew.
 
-They are making magic to take away their old.
-
+They are making magic to take away their old.  
 Make them young, or so I'm told.
 
-My parents don't have a clue
-
+My parents don't have a clue  
 of the terrible things they're up to.
 
-My mother likes their soft fur.
-
+My mother likes their soft fur.  
 She pets them to here them purr.
 
-My father likes when they catch mice.
-
+My father likes when they catch mice.  
 He thinks they're helpful, thinks they're nice.
 
-They don't fool me, I have a bag.
-
+They don't fool me, I have a bag.  
 I'll capture up those two old hags.
 
-Take them to the river and then,
-
+Take them to the river and then,  
 Well, you can guess how they will end.
+
+# Benjamin Bies
+
+Benjamin Bies, covered in flies  
+He'll give you a lick  
+Try to make you sick  
+He's someone to truly despise.
+
+Benjamin Bies, oh how he lies  
+He'll give you first pick  
+Of whats in his pocket  
+The bite's a terrible surprise.
+
+Benjamin Bies, he never dies  
+He'll give you a prick  
+With his scorpion stick  
+With a laugh he's gone at sunrise.
+
+Benjamin Bies, sits in disguise  
+He'll look sweet and slick  
+But don't fall for that trick  
+He would love to be your demise.
+
+# The Monster Who Eats Socks
+
+In the back of your closet  
+Where you may not look  
+Behind your play clothes  
+That fell from the hook  
+In the darkest of corners  
+In a forgotten shoe box  
+Lives a tiny little creature--  
+The monster who eats socks
+
+It may eat just one  
+Or it may eat a pair  
+Sometimes just a toe  
+Is all it will dare  
+To ingest and digest  
+For supper or lunch  
+Or maybe a special  
+Saturday brunch
+
+So clever and sly  
+So timid and shy  
+As quick as a fox  
+The monster who eats socks.
+
+# The Mud Monster
+
+The darkening skies warn of impeding danger
+With lightening and thunder announcing the stranger  
+Darting about behind clouds holding back rain  
+Waiting for just the right moment to appear once again  
+Then, as the raindrops fall to the ground  
+As if by magic the monster seems all around  
+First a puddle or two where the ground is so bare  
+Then like a lake or an ocean almost everywhere  
+Ready to glob onto goulashes and boots  
+To catch a ride as into homes we scoot  
+Appearing from nowhere upon the kitchen floor  
+Upon the throw rug leading by the front door  
+Up the stairs it follows me now  
+Into my room  
+...Mud Monster how?  
+How do you come so oozy and wet  
+Find a good place to become hardened and set  
+Show the whole world just where I've gone  
+Through puddles and fields on my way home  
+Oh, Mud Monster you're such a pain  
+I'm glad you only come when it rains.
+
+# The Dragon of Mount Rainier
+
+The last great dragon  
+of the world  
+Lives on Mount Rainier
+
+And though it's slept  
+a long long time  
+It will soon wake, I fear
+
+The dragon is long  
+tall, and wide  
+with tough scales, bright green
+
+And every story  
+I've heard of him  
+say he is cruel and quite mean
+
+The dragon, its said  
+killed a thousand men  
+and dragged them to his cave
+
+Ate a hundred  
+right then and there  
+piled the rest of to save
