@@ -1,7 +1,9 @@
 ---
 layout: default
-title: The Baby Creep
+title: Baby Creep
 ---
+
+# Baby Creep
 
 
 There's this thing that will creep while your babies asleep  
