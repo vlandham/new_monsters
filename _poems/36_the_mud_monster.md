@@ -7,7 +7,7 @@ title: The Mud Monster
 
 **By Dick Vallandingham**
 
-The darkening skies warn of impeding danger
+The darkening skies warn of impeding danger  
 With lightening and thunder announcing the stranger  
 Darting about behind clouds holding back rain  
 Waiting for just the right moment to appear once again  
@@ -20,8 +20,9 @@ To catch a ride as into homes we scoot
 Appearing from nowhere upon the kitchen floor  
 Upon the throw rug leading by the front door  
 Up the stairs it follows me now  
-Into my room  
-...Mud Monster how?  
+Into my room
+
+... Mud Monster how?  
 How do you come so oozy and wet  
 Find a good place to become hardened and set  
 Show the whole world just where I've gone  
