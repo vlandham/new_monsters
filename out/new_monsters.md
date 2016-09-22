@@ -171,6 +171,8 @@ He would love to be your demise.
 
 # The Monster Who Eats Socks
 
+**By Dick Vallandingham**
+
 In the back of your closet  
 Where you may not look  
 Behind your play clothes  
@@ -195,6 +197,8 @@ As quick as a fox
 The monster who eats socks.
 
 # The Mud Monster
+
+**By Dick Vallandingham**
 
 The darkening skies warn of impeding danger
 With lightening and thunder announcing the stranger  
@@ -244,6 +248,8 @@ Ate a hundred
 right then and there  
 piled the rest of to save
 
+**UNFINISHED**
+
 # The Eaters
 
 I was upstairs playing in my room.  
@@ -270,14 +276,16 @@ It was ten feet tall and covered in rust.
 With metal teeth and a powerful jaw.  
 Just floating as it munched - no body at all.
 
+**UNFINISHED**
+
 # Baby Creep
 
 
 There's this thing that will creep while your babies asleep  
 And it will slink right into their bed.
 
-And quick as a wink. What are you baby still sleeps.
-This creep gobbles it up toes to head.  
+And quick as a wink. What are you baby still sleeps.  
+This creep gobbles it up toes to head.
 
 This will come with a surprise, but your babies quite fine.  
 And will continue on sleeping soundly
@@ -296,3 +304,5 @@ Making sure everything's perfect and neat.
 
 And then it will cry out for you with a grin  
 because to him a mother's a tasty treat.
+
+**UNFINISHED**

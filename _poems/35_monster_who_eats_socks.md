@@ -5,6 +5,8 @@ title: The Monster Who Eats Socks
 
 # The Monster Who Eats Socks
 
+**By Dick Vallandingham**
+
 In the back of your closet  
 Where you may not look  
 Behind your play clothes  

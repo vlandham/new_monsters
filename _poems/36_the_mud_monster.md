@@ -5,6 +5,8 @@ title: The Mud Monster
 
 # The Mud Monster
 
+**By Dick Vallandingham**
+
 The darkening skies warn of impeding danger
 With lightening and thunder announcing the stranger  
 Darting about behind clouds holding back rain  
