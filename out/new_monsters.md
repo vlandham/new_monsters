@@ -5,25 +5,25 @@ The Wandering Eyes fly through the air.
 Going from place to place.
 
 Looking, seeking, searching,  
-for a home to call a face.
+For a home to call a face.
 
 They never stop for long,  
-for every face they've spied,
+For every face they've spied,
 
 Is already filled,  
-unfortunately occupied.
+Unfortunately occupied.
 
 So on they float, two eyes on the breeze.  
 Going from town to town.
 
 Talking to each other with blinks and winks,  
-never making a sound.
+Never making a sound.
 
 Climb up a hill and close your eyes  
-on some windy night.
+On some windy night.
 
 And the Wandering Eyes might land on you,  
-and give you quite a fright.
+And give you quite a fright.
 
 # The Something
 
@@ -32,25 +32,25 @@ There, in the dark.
 
 The Something.  
 Out here,  
-with us.  
+With us.  
 In the dark.  
 
 What Something?
 
-THE SOMETHING
+**THE SOMETHING**
 
 Now, stay still.  
 The Something  
-is moving.  
+Is moving.  
 
 Perhaps,  
-its already  
-had its fill.  
+Its already  
+Had its fill.  
 
 The Something  
-is moving on.  
+Is moving on.  
 I think, I think,  
-we are safe.  
+We are safe.  
 
 OH NO, WATCH OUT!  
 RUN!  
@@ -117,6 +117,8 @@ There is a ghost in the hallway.
 Who never comes out in day.  
 At night, she taps my doorway.  
 To ask if I can come out and play.
+
+**UNFINISHED**
 
 # Tricky Witches
 
@@ -200,7 +202,7 @@ The monster who eats socks.
 
 **By Dick Vallandingham**
 
-The darkening skies warn of impeding danger
+The darkening skies warn of impeding danger  
 With lightening and thunder announcing the stranger  
 Darting about behind clouds holding back rain  
 Waiting for just the right moment to appear once again  
@@ -213,8 +215,9 @@ To catch a ride as into homes we scoot
 Appearing from nowhere upon the kitchen floor  
 Upon the throw rug leading by the front door  
 Up the stairs it follows me now  
-Into my room  
-...Mud Monster how?  
+Into my room
+
+... Mud Monster how?  
 How do you come so oozy and wet  
 Find a good place to become hardened and set  
 Show the whole world just where I've gone  
@@ -225,28 +228,28 @@ I'm glad you only come when it rains.
 # The Dragon of Mount Rainier
 
 The last great dragon  
-of the world  
+Of the world  
 Lives on Mount Rainier
 
 And though it's slept  
-a long long time  
+A long long time  
 It will soon wake, I fear
 
 The dragon is long  
-tall, and wide  
-with tough scales, bright green
+Tall, and wide  
+With tough scales, bright green
 
 And every story  
 I've heard of him  
-say he is cruel and quite mean
+Say he is cruel and quite mean
 
 The dragon, its said  
-killed a thousand men  
-and dragged them to his cave
+Killed a thousand men  
+And dragged them to his cave
 
 Ate a hundred  
-right then and there  
-piled the rest of to save
+Right then and there  
+Piled the rest of to save
 
 **UNFINISHED**
 
@@ -293,10 +296,10 @@ And will continue on sleeping soundly
 While the creep stays in the crib under blankets and bib  
 and starts to transform quite profoundly.
 
-It's tail shrinks to a stub its beak A nose nub.  
+It's tail shrinks to a stub, its beak A nose nub.  
 Soft goes it's scaly lizard hide.
 
-I know it sounds wild but it sure will look like your child.  
+I know it sounds wild, but it sure will look like your child.  
 With the real baby still stuck inside.
 
 With its new style the creep waits awhile.  
