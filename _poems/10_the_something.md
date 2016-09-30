@@ -10,25 +10,25 @@ There, in the dark.
 
 The Something.  
 Out here,  
-with us.  
+With us.  
 In the dark.  
 
 What Something?
 
-THE SOMETHING
+**THE SOMETHING**
 
 Now, stay still.  
 The Something  
-is moving.  
+Is moving.  
 
 Perhaps,  
-its already  
-had its fill.  
+Its already  
+Had its fill.  
 
 The Something  
-is moving on.  
+Is moving on.  
 I think, I think,  
-we are safe.  
+We are safe.  
 
 OH NO, WATCH OUT!  
 RUN!  

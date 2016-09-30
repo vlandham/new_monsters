@@ -18,10 +18,10 @@ And will continue on sleeping soundly
 While the creep stays in the crib under blankets and bib  
 and starts to transform quite profoundly.
 
-It's tail shrinks to a stub its beak A nose nub.  
+It's tail shrinks to a stub, its beak A nose nub.  
 Soft goes it's scaly lizard hide.
 
-I know it sounds wild but it sure will look like your child.  
+I know it sounds wild, but it sure will look like your child.  
 With the real baby still stuck inside.
 
 With its new style the creep waits awhile.  
