@@ -1,4 +1,4 @@
-# Adventure Club Handbook
+# New Monsters to Scare Children
 
 An example of using pandoc and markdown to create pdf's ready to publish on Amazon's CreateSpace.
 
