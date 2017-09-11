@@ -3,7 +3,7 @@ layout: default
 title: A Spell to Walk on Water
 ---
 
-# A Spell to Walk on WaterA
+# A Spell to Walk on Water
 
 _Ingredients:_
 
