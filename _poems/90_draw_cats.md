@@ -25,12 +25,12 @@ Detention that night should teach her.
 So late that night she came back.  
 Left in an empty room,  
 To mop and dust and broom.  
-Till ***
+Till *TODO*
 
 Now this school was said to be cursed.  
 Any person staying  
-At night
-**
+At night *TODO*  
+*TODO*
 
 Cleaning began with her full concentration.  
 Till she noticed some chalk,  
@@ -59,7 +59,7 @@ She crawled to the closet, closing the door.
 
 Now the growling was right in the classroom.  
 She heard it sniffing,
-**  
+*TODO*  
 Certainly this would be her final doom.
 
 Another screech sounded, but this time of pain.  
@@ -69,7 +69,7 @@ Then silence filled the room once again.
 
 It took a long time for her to peak out.  
 Dawn was coming in  
-**  
+*TODO*  
 She opened the closet and stifled a shout.  
 
 There lumped on the floor was a huge rat beast.  
@@ -84,7 +84,7 @@ The furry and fluffy,
 The sleek and scruffy.  
 Were drawn with red blood down there chins.
 
-Now the girl who draws cats
-Can draw all she wants,
+Now the girl who draws cats  
+Can draw all she wants,  
 With never a taunt.  
 And the school is completely free of rats.
