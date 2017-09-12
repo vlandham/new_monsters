@@ -47,10 +47,10 @@ From somewhere down the hall,
 She heard feet or paws.  
 Shuffling closer in the dark night.
 
-The noises drew closer, her fear **
+She had to hide not wanting to be found.  
 Whatever the creature,  
 It wasn't her teacher.  
-No human made such growling uncanny.
+No human made such a terrible sounds
 
 Terrified by what might be in store,  
 As her cats looked on,  
@@ -58,8 +58,8 @@ On her knees and palms,
 She crawled to the closet, closing the door.
 
 Now the growling was right in the classroom.  
-She heard it coming near,
-Her body froze with fear.
+She heard it coming near,  
+Her body froze with fear.  
 Certainly this would be her final doom.
 
 Another screech sounded, but this time of pain.  
@@ -68,9 +68,9 @@ Like the tear of a huge sack.
 Then silence filled the room once again.
 
 It took a long time for her to peak out.  
-The room was now bright,
-But destroyed by a fight.
-She opened the closet and stifled a shout.  
+The room was now bright,  
+But destroyed by a fight.  
+She opened the closet and stifled a shout.
 
 There lumped on the floor was a huge rat beast.  
 As big as a man.  

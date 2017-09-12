@@ -118,7 +118,15 @@ Who never comes out in day.
 At night, she taps my doorway.  
 To ask if I can come out and play.
 
-**UNFINISHED**
+There is a ghost in my backyard.  
+He climbs the tall pine tree.  
+When I sit underneath it.  
+He likes to sing with me.
+
+There is a ghost in the attic.  
+She doesn't make a peep.  
+I tell her ghostly stories.  
+Until she falls asleep.
 
 # Tricky Witches
 
@@ -253,7 +261,7 @@ Piled the rest of to save
 
 **UNFINISHED**
 
-# The Eaters
+# The Eater
 
 I was upstairs playing in my room.  
 It was a normal gloomy afternoon.
@@ -279,7 +287,48 @@ It was ten feet tall and covered in rust.
 With metal teeth and a powerful jaw.  
 Just floating as it munched - no body at all.
 
-**UNFINISHED**
+It finished the washer with one last chew.  
+And bit into the dryer, with hunger anew.
+
+I must say, it was quite an eater.  
+After the dryer, it ate the water heater.
+
+As it ate appliances, it gained in size.  
+Till it was over twenty feet high.
+
+I grabbed at its back to make the eating stop.  
+But was dragged along as it floated up.
+
+Breaking through the old basement door.  
+It came to the kitchen and still wanted more.
+
+**ToDO**
+
+It went through the house eating metal and trash.  
+Then went through the rooftop with a terrible smash.
+
+I rode the massive thing out like a fool.
+It was now the size of a large swimming pool.
+
+It floated to our neighbor's home, Catlin Grunch.  
+And bit right in with a  terrible crunch.
+
+In three quick bites, it was on to the next.  
+The house of my friend, Petey Pemtreck.
+
+In half an hour, I was shocked as I stood.  
+The eater had eaten half the neighborhood.
+
+This is when **TODO**
+
+I woke up in the arms of my mother.  
+She was alive! I got up and hugged her.
+
+But the eater had been busy as I was asleep.  
+There wasn't a house that it did not keep.
+
+I looked all around, it ate even the cars.  
+Well, good thing I like sleeping under the stars.
 
 # Baby Creep
 
@@ -307,8 +356,6 @@ Making sure everything's perfect and neat.
 
 And then it will cry out for you with a grin  
 because to him a mother's a tasty treat.
-
-**UNFINISHED**
 
 # The Doppel
 
@@ -347,8 +394,6 @@ but now you see it has gotten your nose!
 
 You move faster, your home now in your gaze.  
 But suddenly, your eyesight starts to haze.
-
-_^fix_
 
 Looking at that awful thing up ahead,  
 You can see your eyes start to appear on its head.
@@ -437,8 +482,6 @@ And though he's brutish and hairy,
 It's hard to be all that scary,  
 In full daylight - even if he's cursed.
 
-**^ Fix**
-
 Though he sneaks and hides in brambles,  
 And is careful as he ambles,  
 You can see him coming a mile away.
@@ -453,9 +496,7 @@ Pretending to be afraid of this fearsome foe.
 
 But we stay one step ahead,  
 So that no one ends up dead.  
-We want to be safe with our job don't you know!
-
-**^ Fix**
+We stay safe and sound, but don't let him know.
 
 He leaves as night falls,  
 Nothing ever caught in his jaws.  
@@ -463,7 +504,7 @@ But we think for him it's still a lot of fun.
 
 And so we always hope,  
 That our dear own lycanthrope,  
-Will be back the very next new full-sun.
+Will be back the very next full-sun.
 
 # The Girl Who Drew Cats
 
@@ -484,19 +525,19 @@ Drawing cats on the wall.
 He told her, appalled,  
 Detention that night should teach her.
 
-So late that night she came back.  
+That night she came back in time.  
 Left in an empty room,  
 To mop and dust and broom.  
-Till ***
+To make up for her drawing crime.
 
 Now this school was said to be cursed.  
-Any person staying  
-At night
-**
+At night something waiting,  
+To catch anyone staying.  
+To drink their blood and quench a terrible thirst.
 
 Cleaning began with her full concentration.  
 Till she noticed some chalk,  
-A blackboard and thought,  
+And blackboard and thought,  
 The room needed a new feline illustration.
 
 Soon the board was filled with drawings.  
@@ -509,10 +550,10 @@ From somewhere down the hall,
 She heard feet or paws.  
 Shuffling closer in the dark night.
 
-The noises drew closer, her fear **
+She had to hide not wanting to be found.  
 Whatever the creature,  
 It wasn't her teacher.  
-No human made such growling uncanny.
+No human made such a terrible sounds
 
 Terrified by what might be in store,  
 As her cats looked on,  
@@ -520,8 +561,8 @@ On her knees and palms,
 She crawled to the closet, closing the door.
 
 Now the growling was right in the classroom.  
-She heard it sniffing,
-**  
+She heard it coming near,  
+Her body froze with fear.  
 Certainly this would be her final doom.
 
 Another screech sounded, but this time of pain.  
@@ -530,23 +571,21 @@ Like the tear of a huge sack.
 Then silence filled the room once again.
 
 It took a long time for her to peak out.  
-Dawn was coming in  
-**  
-She opened the closet and stifled a shout.  
+The room was now bright,  
+But destroyed by a fight.  
+She opened the closet and stifled a shout.
 
 There lumped on the floor was a huge rat beast.  
 As big as a man.  
 Cruel claws on each hand.  
 But carved up like the turkey at a feast.
 
-**^ Fix**
-
 Looking up at the board now the cats all wore grins.  
 The furry and fluffy,  
 The sleek and scruffy.  
 Were drawn with red blood down there chins.
 
-Now the girl who draws cats
-Can draw all she wants,
+Now the girl who loved to draw cats  
+Can draw all she wants,  
 With never a taunt.  
 And the school is completely free of rats.

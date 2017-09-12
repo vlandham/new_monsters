@@ -21,8 +21,6 @@ And though he's brutish and hairy,
 It's hard to be all that scary,  
 In full daylight - even if he's cursed.
 
-**^ Fix**
-
 Though he sneaks and hides in brambles,  
 And is careful as he ambles,  
 You can see him coming a mile away.
@@ -37,9 +35,7 @@ Pretending to be afraid of this fearsome foe.
 
 But we stay one step ahead,  
 So that no one ends up dead.  
-We want to be safe with our job don't you know!
-
-**^ Fix**
+We stay safe and sound, but don't let him know.
 
 He leaves as night falls,  
 Nothing ever caught in his jaws.  
