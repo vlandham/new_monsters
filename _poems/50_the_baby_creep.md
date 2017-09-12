@@ -29,5 +29,3 @@ Making sure everything's perfect and neat.
 
 And then it will cry out for you with a grin  
 because to him a mother's a tasty treat.
-
-**UNFINISHED**

@@ -41,8 +41,6 @@ but now you see it has gotten your nose!
 You move faster, your home now in your gaze.  
 But suddenly, your eyesight starts to haze.
 
-_^fix_
-
 Looking at that awful thing up ahead,  
 You can see your eyes start to appear on its head.
 
