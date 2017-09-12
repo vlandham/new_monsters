@@ -25,4 +25,12 @@ Who never comes out in day.
 At night, she taps my doorway.  
 To ask if I can come out and play.
 
-**UNFINISHED**
+There is a ghost in my backyard.  
+He climbs the tall pine tree.  
+When I sit underneath it.  
+He likes to sing with me.
+
+There is a ghost in the attic.  
+She doesn't make a peep.  
+I tell her ghostly stories.  
+Until she falls asleep.

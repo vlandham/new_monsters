@@ -47,4 +47,4 @@ But we think for him it's still a lot of fun.
 
 And so we always hope,  
 That our dear own lycanthrope,  
-Will be back the very next new full-sun.
+Will be back the very next full-sun.

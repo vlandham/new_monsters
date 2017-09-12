@@ -22,19 +22,19 @@ Drawing cats on the wall.
 He told her, appalled,  
 Detention that night should teach her.
 
-So late that night she came back.  
+That night she came back in time.  
 Left in an empty room,  
 To mop and dust and broom.  
-Till *TODO*
+To make up for her drawing crime.
 
 Now this school was said to be cursed.  
-Any person staying  
-At night *TODO*  
-*TODO*
+At night something waiting,  
+To catch anyone staying.  
+To drink their blood and quench a terrible thirst.
 
 Cleaning began with her full concentration.  
 Till she noticed some chalk,  
-A blackboard and thought,  
+And blackboard and thought,  
 The room needed a new feline illustration.
 
 Soon the board was filled with drawings.  
@@ -58,8 +58,8 @@ On her knees and palms,
 She crawled to the closet, closing the door.
 
 Now the growling was right in the classroom.  
-She heard it sniffing,
-*TODO*  
+She heard it coming near,
+Her body froze with fear.
 Certainly this would be her final doom.
 
 Another screech sounded, but this time of pain.  
@@ -68,8 +68,8 @@ Like the tear of a huge sack.
 Then silence filled the room once again.
 
 It took a long time for her to peak out.  
-Dawn was coming in  
-*TODO*  
+The room was now bright,
+But destroyed by a fight.
 She opened the closet and stifled a shout.  
 
 There lumped on the floor was a huge rat beast.  
@@ -77,14 +77,12 @@ As big as a man.
 Cruel claws on each hand.  
 But carved up like the turkey at a feast.
 
-**^ Fix**
-
 Looking up at the board now the cats all wore grins.  
 The furry and fluffy,  
 The sleek and scruffy.  
 Were drawn with red blood down there chins.
 
-Now the girl who draws cats  
+Now the girl who loved to draw cats  
 Can draw all she wants,  
 With never a taunt.  
 And the school is completely free of rats.
